@@ -1,0 +1,2 @@
+# afrial.net
+promo
